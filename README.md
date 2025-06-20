@@ -1,1 +1,1 @@
-Leviathanhttps://test-phl-api.fyinformation.cctidebeads
+Leviathanhttps://api.genesiscredit.toptidebeads
